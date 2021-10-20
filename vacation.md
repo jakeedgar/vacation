@@ -8,7 +8,7 @@
 2. **Best friend 2.**
 
 <blockquote/>
-<p> Probably my favorite experience was when we walked across the Brooklyn Bridge together **at night.** _The Lights_ of the city were so bright and beautiful. 
+<p> Probably my favorite experience was when we walked across the Brooklyn Bridge together at night. The Lights of the city were so bright and beautiful. 
 We also enjoyed
 * Central Park
 * Delicious Food
